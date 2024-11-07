@@ -10,3 +10,5 @@ Meu nome é Alexssandro da Luz Assunção
 
 Alexssandro.assuncao@escola.pr.gov.br
 @Alex206367
+
+![](https://media1.tenor.com/m/3yNUtUfO_mgAAAAC/cats-anime.gif)
